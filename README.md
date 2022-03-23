@@ -1,1 +1,1 @@
-# To preserve my philosophy in the world.
+# For preserve my philosophy in the world.
