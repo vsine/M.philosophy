@@ -1,1 +1,1 @@
-# For preseving my philosophy in the world.
+# For preseving my natural philosophy in the world.
